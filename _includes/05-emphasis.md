@@ -1,0 +1,2 @@
+*New Book*
+**New Title**

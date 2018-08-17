@@ -1,1 +1,3 @@
-Replace this with a list of your favorite things.
+1. Lord of the Ring
+2. Daughters of the Moon
+3. SuperGirl
